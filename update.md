@@ -1,4 +1,4 @@
 
-adjust content
-vs6rulutF20VNXSBJOoPCkPGwOmsYo
-2018-05-22T06:57:53Z
+minor cleanup
+H5eoKbhDoF30lteV0WEAvfytFYAiAU
+2018-10-11T17:18:08Z
