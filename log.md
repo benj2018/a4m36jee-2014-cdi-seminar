@@ -1,4 +1,4 @@
 
-update notes
-Jl4wgXMycAkezQ0NWVnneRTpaVmeWJ
-2017-07-11T19:34:07Z
+refactor text
+roLKIrCAdKOsv0kpBHczXLnk7UZ0Uz
+2017-11-12T08:47:48Z
